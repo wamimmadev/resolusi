@@ -1,0 +1,2 @@
+# resolusi
+tentang resolusi
